@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ncgoodluck
+- 👋 Hi, I’m @ncgood
 - 👀 I’m interested in Web 3, cryptocurrency and Cyber security 
 - 🌱 I’m currently learning Crypto Trading 
 - 💞️ I’m looking to collaborate on web 3 jobs
